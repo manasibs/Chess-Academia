@@ -8,6 +8,6 @@ You can choose between online and in-person lessons according to your convenienc
 
 You may find my reviews at **[https://takelessons.com/profile/manasi-b](url)**.
 
-Drop me an email at [contact@chessacademia.com] to sign up!
+Drop me an email at contact@chessacademia.com to sign up!
 
 
